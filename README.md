@@ -1,4 +1,4 @@
-# Hi there, I'm Pawan Singh! 👋
+# Hi there, I'm Pawan! 👋
 
 ### About Me
 
